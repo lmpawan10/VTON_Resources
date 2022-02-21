@@ -1,2 +1,2 @@
 
-https://discord.com/channels/@me/790211227124760577/945191129790427147
+https://drive.google.com/uc?id=1hOHMFHEjhoJuLEQY0Ndurn5hfiA9mwko
